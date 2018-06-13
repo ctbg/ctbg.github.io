@@ -1,3 +1,0 @@
-# tAche bAu gArten
-
-Hallo.
