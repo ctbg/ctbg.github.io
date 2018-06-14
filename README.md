@@ -4,4 +4,13 @@
 
 Kontakt: Ciprian Tache, tel. +49-157/34601313.
 
+Konto:
+
+> IBAN: DE37683900000001458205   
+
+> BIC: VOLODE66XXX (Lörrach)   
+
+> Volksbank Dreiländereck
+> Tumringer Straße 237
+> 79539 Lörrach
 
