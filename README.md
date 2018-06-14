@@ -5,7 +5,7 @@
 ## Kontakt
 
 - Ciprian Tache
-- Tel. (+49) 0157/34601313
+- Tel: (+49) 0157/34601313
 
 ## Bankverbindung
 
